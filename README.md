@@ -36,7 +36,7 @@ Here are some of the cool things I’ve been working on:
 ## 📫 Let's Connect
 
 - ✉️ Email: [nazeershaik.cse@gmail.com](mailto:nazeershaik.cse@gmail.com)
-- 🔗 LinkedIn: [linkedin.com/in/nazeer-shaik](https://linkedin.com/in/nazeer-shaik)
+- 🔗 LinkedIn: [linkedin.com/in/nazeer-shaik](https://linkedin.com/in/nazeer-shaik-253108337)
 - 🌐 Portfolio: Coming soon!
 
 ---
